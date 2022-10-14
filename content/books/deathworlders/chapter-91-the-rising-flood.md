@@ -579,7 +579,7 @@ Mark just nodded grimly. “Yup…” he agreed.
 
 He looked toward a stand of pinkwood to the west. “You know, I used to think Cimbrean’s fate was a damn shame. Mass extinction, the complete eradication and supplanting of its native biosphere…now, I see that we got very, very lucky. Without Cimbrean, and what we’ve learned from the Skidmark and the terraforming operation…” he shook his head. “We’d be out of the fire and into the famine.”
 
-So the conversation went. Walking the land was a long task, broken up by stopping every so often to take soil samples, push a geophysics probe into the ground, map the subtle roll and lay of the land, identify the streams and creek (lots of those) and not the location of every wash, every rock, every tree...
+So the conversation went. Walking the land was a long task, broken up by stopping every so often to take soil samples, push a geophysics probe into the ground, map the subtle roll and lay of the land, identify the streams and creek (lots of those) and note the location of every wash, every rock, every tree...
 
 Without the drone, it would have taken God-knew how long. With it, they camped out twice, lulled to sleep by the sound of rain on the tent.
 
